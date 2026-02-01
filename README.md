@@ -6,3 +6,5 @@ k00k00's rentry: https://rentry.co/K00k00sys
 White's rentry: https://rentry.co/thewhitepumpkinsys
 
 romeo's rentry: https://rentry.co/R0ME0sys
+
+Warden's rentry: https://rentry.co/WardenSYS
